@@ -1,1 +1,0 @@
-# jonoma.github.io
